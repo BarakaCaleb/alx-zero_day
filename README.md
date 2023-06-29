@@ -1,1 +1,1 @@
-This is my first time ive updated mr readme
+This is my first time ive updated my readme
